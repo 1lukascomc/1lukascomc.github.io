@@ -1,2 +1,1 @@
-[teste](https://1lukascomc.github.io)
-# omaga
+# Lucas Santos, Luscas, Luqueta, ou 1lukascomc pros mais chegados
