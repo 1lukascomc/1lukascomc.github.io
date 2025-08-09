@@ -2,5 +2,5 @@
 
 # Links
 * [YouTube](https://youtube.com/@1lukascomc/)
-* [Instagram](https://instagram.com/@lukascomc.bs/)
+* [Instagram](https://instagram.com/lukascomc.bs/)
 * [TikTok](https://tiktok.com/@1lukkascomc/)
